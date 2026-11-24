@@ -1,1 +1,1 @@
-# shop-easy-Marketing-analysis
+# Shop-Easy-Marketing-Analysis
